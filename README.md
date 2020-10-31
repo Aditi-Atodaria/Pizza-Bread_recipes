@@ -11,7 +11,7 @@ For this recipe the ingredients we need are:-
 7)pepper
 8)oregano
 9)cheese🧀
-10)last but not the least some chilli flakes
+10)last but not the least some chilli flakes🌶
 
 step1:- So,we would start the recipe by chopping some tomatoes,capsicums and onions.
 
